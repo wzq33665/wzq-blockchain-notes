@@ -1,2 +1,2 @@
 # wzq33665.github.io
-blogs or notes
+blogs and notes
