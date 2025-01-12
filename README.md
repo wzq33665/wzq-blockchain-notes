@@ -1,2 +1,2 @@
-# wzq33665.github.io
+# wzq -> web3 ing
 blogs and notes
